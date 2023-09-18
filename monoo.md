@@ -25,8 +25,8 @@ https://pbs.twimg.com/profile_images/1605327286810644482/--BZb7WJ_400x400.jpg
 
 ### Util habilitats:
 
-> Parlar en 7 idiomas: ___Alemán, Angles, Frances, Castellano, Catalán, Hindi, Punyabi.___
-> Bon oient, aprenent ràpid
+- Parlar en 7 idiomas: ___Alemán, Angles, Frances, Castellano, Catalán, Hindi, Punyabi.___
+- Bon oient, aprenent ràpid
 
 
 ``Eso era tot!
