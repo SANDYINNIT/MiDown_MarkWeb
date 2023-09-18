@@ -1,20 +1,35 @@
-# no clue what to do
-GDAY THO
+# Presentation
+Hey! **I'm Sandy** and I'm studying ciclos informatius *(IT)*. I'm 17 years old,
 
-## HYPIXEL
-love hypixel you should definitely play it you'll love it,
+What do I like to do?: I really love going outside to skate sometimes or just to do the gym
+Where am I from?: I'm from Spain, Barcelona, I've been living here since I Was born...
+But when I was about 3 years old I moved out of Spain for about *8 years..*
 
-it is the best trust me. https://hypixel.net
+## Education
+> For my elementary school I used to study in "Jaume Salvatella",
+> for my instituto I studied in "IES La Bastida" for my ESO.
+> And now! I'm studying in "PUIG Castellar" Informatic. *Maybe for Cybersecurity Title or who knows* 
 
-### MINECRAFT
-truts me, the best
+Puig Castellar: https://elpuig.xeill.net/ 
 
-https://upload.wikimedia.org/wikipedia/en/9/93/HypixelLogo.png
+### Working Experience
 
-**JOIN NOW** *TRUST ME YOU'LL LOVE IT*
+I used to work in a restaurant named "SUbway", was popular for fast food.
+I worked there for about 8 months afterwards I had stopped working! 
 
-> yes
+> Location: Magic Badalona
 
-___who doesnt love it___
+https://pbs.twimg.com/profile_images/1605327286810644482/--BZb7WJ_400x400.jpg
 
-[-eee]
+**IT WAS FUN THO**
+
+### Util habilitats:
+
+> Parlar en 7 idiomas: ___Alemán, Angles, Frances, Castellano, Catalán, Hindi, Punyabi.___
+> Bon oient, aprenent ràpid
+
+
+```Eso era tot!
+Ciao!```
+
+___Saihajdeep Singh Kaur___
