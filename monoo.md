@@ -14,12 +14,12 @@ Puig Castellar: https://elpuig.xeill.net/
 
 ### Working Experience
 
-I used to work in a restaurant named "SUbway", was popular for fast food.
+I used to work in a restaurant named "Subway", was popular for fast food.
 I worked there for about 8 months afterwards I had stopped working! 
 
 > Location: Magic Badalona
 
-https://pbs.twimg.com/profile_images/1605327286810644482/--BZb7WJ_400x400.jpg
+!https://pbs.twimg.com/profile_images/1605327286810644482/--BZb7WJ_400x400.jpg
 
 **IT WAS FUN THO**
 
