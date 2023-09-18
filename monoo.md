@@ -29,7 +29,7 @@ https://pbs.twimg.com/profile_images/1605327286810644482/--BZb7WJ_400x400.jpg
 > Bon oient, aprenent ràpid
 
 
-```Eso era tot!
-Ciao!```
+``Eso era tot!
+Ciao!``
 
 ___Saihajdeep Singh Kaur___
