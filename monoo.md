@@ -11,6 +11,7 @@ But when I was about 3 years old I moved out of Spain for about *8 years..*
 > And now! I'm studying in "PUIG Castellar" Informatic. *Maybe for Cybersecurity Title or who knows* 
 
 Puig Castellar: https://elpuig.xeill.net/ 
+*Locations: Av. de l'Anselm de Riu, 10, 08924 Santa Coloma de Gramenet, Barcelona*
 
 ### Working Experience
 
