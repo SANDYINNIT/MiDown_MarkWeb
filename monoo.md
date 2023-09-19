@@ -19,7 +19,7 @@ I worked there for about 8 months afterwards I had stopped working!
 
 > Location: Magic Badalona
 
-![subway](https://github.com/SANDYINNIT/MiDown_MarkWeb/assets/145119723/deedfe05-2b1c-4ee1-861c-8ce4cc489104)
+![subwayinnit](https://github.com/SANDYINNIT/MiDown_MarkWeb/assets/145119723/deedfe05-2b1c-4ee1-861c-8ce4cc489104)
 
 **IT WAS FUN THO**
 
