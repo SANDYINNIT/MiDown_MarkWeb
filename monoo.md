@@ -7,14 +7,14 @@ But when I was about 3 years old I moved out of Spain for about *8 years..*
 
 ### Index:
 
-1. Sobre mi educación
-2. La meva experiència laboral en el passat
-3. My routine on what I on normal days.
-4. Meine nutzlichen Talente.
+1. Sobre mi [educación](https://github.com/SANDYINNIT/MiDown_MarkWeb/blob/main/monoo.md#education)
+2. La meva [experiència laboral](https://github.com/SANDYINNIT/MiDown_MarkWeb/blob/main/monoo.md#working-experience) en el passat
+3. My [routine](https://github.com/SANDYINNIT/MiDown_MarkWeb/blob/main/monoo.md#my-routine) on what do upon my  normal days.
+4. Meine [nutzlichen Talente](https://github.com/SANDYINNIT/MiDown_MarkWeb/blob/main/monoo.md#util-habilitats).
 
 ## Education:
-> For my elementary school I used to study in "Jaume Salvatella",
-> for my instituto I studied in "IES La Bastida" for my ESO.
+> For my elementary school I used to study in "[Jaume Salvatella](https://agora.xtec.cat/ceipsalvatella/)",
+> for my instituto I studied in "[IES La Bastida](https://agora.xtec.cat/ieslabastida/)" for my ESO.
 > And now! I'm studying in "[PUIG Castellar](https://elpuig.xeill.net/)" Informatic. *Maybe for Cybersecurity Title or who knows*
 
 *Location: Av. de l'Anselm de Riu, 10, 08924 Santa Coloma de Gramenet, Barcelona, Spain*
