@@ -29,9 +29,11 @@ I worked there for about 8 months afterwards I had stopped working!
 
 In these days I always wake up early around `6 a.m` to get ready for *College* which lasts around 6 hours, but in Wednesday I usually come back home an hour earlier! *(even if there's no College day I still try to wake up early)*
 
-I mostly try to challenege myself so I go to the gym 3 times a week *I try to let my body rest 4 times a week*, in Monday, Wednesday and Friday... It lasts around 2 hours, sometimes I tend to go out with friends or just do my favorite thing, and that's called Skate! or just stay home and watch a Movie, series or of course perhaps just play video games. 
+I mostly try to challenege myself so I go to the gym `3` times a week *I try to let my body rest 4 times a week*, in Monday, Wednesday and Friday... It lasts around 2 hours, sometimes I tend to go out with friends or just do my favorite thing, and that's called Skate! or just stay home and watch a Movie, series or of course perhaps just play video games. 
 
-When it comes to studying, I always study for about 3-4 hours a week, **however** if there is an deadline for an upcoming exam then I will definitely be studying 3 days earlier for the Exam.
+When it comes to studying, I always study for about `3-4` hours a week, **however** if there is an deadline for an upcoming exam then I will definitely be studying 3 days earlier for the Exam.
+
+![gyminnit](https://blog.nasm.org/hubfs/cleangym%20%281%29.jpg)
 
 ***Saturday-Sunday]***
 
