@@ -5,6 +5,8 @@ What do I like to do?: I really love going outside to skate sometimes or just to
 Where am I from?: I'm from Spain, Barcelona, I've been living here since I Was born...
 But when I was about 3 years old I moved out of Spain for about *8 years..*
 
+**Enough about my presentation!** ***lets get to the exciting part***
+
 ### Index:
 
 1. Sobre mi [educación](https://github.com/SANDYINNIT/MiDown_MarkWeb/blob/main/monoo.md#education)
@@ -17,7 +19,7 @@ But when I was about 3 years old I moved out of Spain for about *8 years..*
 > for my instituto I studied in "[IES La Bastida](https://agora.xtec.cat/ieslabastida/)" for my ESO.
 > And now! I'm studying in "[PUIG Castellar](https://elpuig.xeill.net/)" Informatic. *Maybe for Cybersecurity Title or who knows*
 
-*Location: Av. de l'Anselm de Riu, 10, 08924 Santa Coloma de Gramenet, Barcelona, Spain*
+*Puig Castellar location: Av. de l'Anselm de Riu, 10, 08924 Santa Coloma de Gramenet, Barcelona, Spain*
 
 ### Working Experience:
 I used to work in a restaurant named "Subway", was popular for fast food.
